@@ -1,2 +1,2 @@
 # avorpg
-Just for stuff
+If i ever need to prove ownership on my own intellectual property
